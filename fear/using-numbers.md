@@ -1,4 +1,4 @@
-**2021-02**   
+**2021-11-27**   
 **Centers for Disease Control and Prevention (CDC) (cdc.gov)  
 COVID-19 Outbreak Associated with a 10-Day Motorcycle Rally in a Neighboring State — Minnesota, August–September 2020**
 
